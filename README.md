@@ -1,2 +1,0 @@
-# Tagz
-Broșură digitală TAGZ
